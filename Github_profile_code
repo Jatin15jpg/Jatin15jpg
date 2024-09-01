@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **Jatinc1552k@gmail.com**
 
-- 📄 Know about my experiences [[Resume] Jatin_resume_profile.pdf](https://drive.google.com/file/d/1X_fe2M5y62G7c6j24fZJbKgn6OgTxzyu/view?usp=sharing)
+- 📄 Know about my experiences [[Resume] Jatin_resume_profile.pdf](https://drive.google.com/file/d/1QBdZH245xbSwTjSztpbAPxTCJD9XtLWw/view?usp=sharing)
 
 - ⚡ Fun fact **I can solve a Rubik's cube in less than 30 seconds**
 
